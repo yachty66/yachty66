@@ -1,1 +1,1 @@
-[Imgur](https://imgur.com/rkmpssM)
+![Imgur](https://imgur.com/rkmpssM)
